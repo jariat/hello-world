@@ -4,3 +4,4 @@ I have worked as an IT Developer at Metajua limited.
 I have worked for two years.
 I have been in leave for two months..
 I had four workmates
+The manager is called Enoch
